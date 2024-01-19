@@ -1,1 +1,1 @@
-# cn-study
+# cn-study season2
